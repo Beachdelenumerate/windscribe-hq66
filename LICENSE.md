@@ -1,4 +1,4 @@
-
+Windscribe premium Extension: WireGuard-support & dedicated-IP is the best Windscribe extension, featuring WireGuard-support and dedicated-IP. Secure, fast, and optimized for
 
 
 
